@@ -33,4 +33,4 @@ I excell in team inviroments and have strong creative and problem solving skills
 ## Connect with Me
 
 Feel free to reach out if you'd like to collaborate on projects or just want to connect!
-[linkedin] (https://www.linkedin.com/in/eden-hagos-b25b02317/)
+
